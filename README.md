@@ -1,4 +1,4 @@
-# 💫 About Me:
+# HI I'AM BHARATHRAJ R
 A Passionate Software Engineer from India 
 
 
